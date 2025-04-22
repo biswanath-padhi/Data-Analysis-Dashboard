@@ -1,4 +1,4 @@
-Title:
+
 "Optimizing Sales Performance and Profitability Through Data-Driven Insights"
 
  Objective:
